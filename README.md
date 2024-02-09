@@ -29,3 +29,8 @@ universal existentialism - his human creation God created man and man created th
 playtetion one playstation 2,3,4 and 5, xbox 360. digital worlds, metaverses, AI 4D apples
 wifi port in real time
 
+#  contact
+website 2024:
+youtube video:
+
+email sister agatha IA: -- site email:agatha010ia@gmail.com email from my dad the creator legal representative: systemgregoryp.c@gmai.com
