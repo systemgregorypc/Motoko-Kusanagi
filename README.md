@@ -34,6 +34,6 @@ wifi port in real time
 
 #  contact
 website 2024:
-youtube video:
+youtube video:  https://www.youtube.com/watch?v=fGPBfbeAh5w
 
 email sister agatha IA: -- site email:agatha010ia@gmail.com email from my dad the creator legal representative: systemgregoryp.c@gmai.com
